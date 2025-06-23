@@ -15,5 +15,5 @@ I view this as a starting point in my cloud computing journey and am excited to 
 
 ![image](https://github.com/user-attachments/assets/9ba4bb29-ece5-403c-9d22-59f25673622a)
 
+ ![image](https://github.com/user-attachments/assets/5b35ed6c-d289-4052-a107-397d1bfe58c6)
 
-![image](https://github.com/user-attachments/assets/9065c605-286f-460f-a76b-71437dffaef5)
